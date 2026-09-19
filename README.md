@@ -4,7 +4,7 @@
   
 ![](https://komarev.com/ghpvc/?username=audr3na&style=plastic&color=cbb3ff&label=stalkrs)
 <img width="112" height="43" alt="tumblr_50933c8a6149fd273278b4ec700803a1_4982006e_1280_25_1_50" src="https://github.com/user-attachments/assets/57f62861-cbe9-44f6-b04f-d2c67efaa077" />
-![GitHub followers](https://img.shields.io/github/followers/audr3na?style=plastic&label=followrs&labelColor=5b5b5b&color=ffb5df)
+![GitHub followers](https://img.shields.io/github/followers/mangledmask?style=plastic&label=followrs&labelColor=5b5b5b&color=ffb5df)
 
 ㅤ  
 ㅤ  
