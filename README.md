@@ -36,12 +36,12 @@ $\color{color}{\textsf{i get vry nervous arnd new ppl , whch mkes me rlly dry}}$
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
       $\color{color}{\textsf{im 16 ( 3 . 18 ) , pangendr , n omniace}}$ <br>
       <img width="20" height="20" alt="tumblr_551a7ef3710bd1e777db942e7639bed2_db858a0e_75" src="https://github.com/user-attachments/assets/abcd8031-83e9-45e8-ae30-d7b74493daf0" />
-      $\color{color}{\textsf{leav me a messag on my ata or drwing on my straw :3}}$ <br>
+      $\color{color}{\textsf{leav me a messag on my ata :3}}$ <br>
 </th>
 </tr>
 </table>
 
-[atabook ^-^](https://audr3na.atabook.org/) [strawpage ^ᗜ^](https://audr3na.straw.page/)
+[atabook ^-^](https://audr3na.atabook.org/) 
 
 <img width="1548" height="50" alt="tumblr_b953dc97931b08c6ac157c252d2c9f46_919adc0a_2048" src="https://github.com/user-attachments/assets/9998d378-f82a-4728-a006-3fc9300808b7" />
 ㅤ  
